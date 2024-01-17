@@ -1,5 +1,5 @@
 - 👋 Hi, I’m Maede Mahavi
-- 👀 I’m interested in learning
+- 👀 I like to have lots of skills!
 - 🌱 I’m currently learning programming (JS)
 - 📫 Email: mahavimaede@gmail.com
 
